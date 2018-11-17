@@ -1,4 +1,8 @@
-# the-professor-vs-the-inhabitants-of-flute-island by _why
+# THE PROFESSOR VS 
+# THE INHABITANTS OF 
+# FLUTE ISLAND 
+
+## by _why
 
 found [here](https://archive.org/stream/136875051WhySCompletePrinterSpoolAsOneBook/136875051--why-s-complete-printer-spool-as-one-book_djvu.txt)
 
